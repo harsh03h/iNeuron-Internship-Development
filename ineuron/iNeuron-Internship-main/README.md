@@ -73,7 +73,7 @@ https://github.com/user-attachments/assets/3f62a84d-7174-413e-8de9-e36509273432
 
 
 ## Contact
-Email - rajankrpoddar@gmail.com
+Email - harshgupta07h@gmail.com
 
 Feel free to adjust the content to better fit your specific project.
 
